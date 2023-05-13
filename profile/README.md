@@ -1,4 +1,4 @@
-![Twitter header - 1 (1)](https://github.com/qqey/.github/assets/26848713/e56dc1da-1b9e-4fcf-af08-394cec660139)
+![Twitter header - 1 (3)](https://github.com/qqey/.github/assets/26848713/23953ca2-810f-4575-b297-3235b5adbb5d)
 
 ## Mission
 Do what you love.
