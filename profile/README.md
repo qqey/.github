@@ -2,7 +2,9 @@
 
 ## Mission
 Do what you love.
+
 好きなことを全力で。
+
 やりたいことを推し進める。
 
 ## Vision
