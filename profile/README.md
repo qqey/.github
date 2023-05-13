@@ -6,7 +6,7 @@ Do what you love.
 好きなことを全力で、やりたいことを推し進める。
 
 ## Vision
-特になし。
+夢を夢のままで終わらせない。
 
 ## Value
 - Just do it.
